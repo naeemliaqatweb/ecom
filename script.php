@@ -1,0 +1,1 @@
+<script type="text/javascript" charset="utf-8" src="https://www.gambling-affiliation.com/cpm/v=Z3hsO0HW1bzMmwGD3kqkrXulHkcyzTS5LPaTn5p5qoc_GA7331V2"></script>
